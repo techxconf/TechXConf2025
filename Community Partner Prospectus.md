@@ -1,8 +1,8 @@
 ## Introduction
 
-We invite you to become a community partner of  TechXConf, Asia's Largest AI & Cloud Conference 2024 with a special focus on AI services, on November 15 - 16, 2024 at Chennai Trade Centre, Chennai, Tamil Nadu.
+We invite you to become a community partner of  TechXConf, Asia's Largest AI & Cloud Conference 2025 with a special focus on AI services, on November 01, 2025 at Chennai Trade Centre, Chennai, Tamil Nadu.
 
-## About TechXConf 2024 Event
+## About TechXConf 2025 Event
 
 TechXConf is a global phenomenon that unites visionary speakers, pioneering technologies, and a vibrant community of tech enthusiasts. Our mission is to explore, educate, and envision the future of technology through two dynamic domains: Cloud Computing and Generative AI.
 
@@ -12,7 +12,7 @@ For more details, visit our website https://techxconf.com
 
 ## Benefits of Becoming a Community Partner
 
-**Increased visibility:** Partnering with TechXConf 2024 event can help raise your profile in the community and increase your visibility among potential customers or clients.
+**Increased visibility:** Partnering with TechXConf 2025 event can help raise your profile in the community and increase your visibility among potential customers or clients.
 
 **Marketing opportunities:** You will have the opportunity to showcase your community to our supporters and target audience, and potentially gain new community members and followers.
 
@@ -35,12 +35,12 @@ For more details, visit our website https://techxconf.com
 - Provide post-event feedback and insights to the Event organizers to improve future events.
 
 ## Your entitlements
-- Get to promote your community during the TechXConf 2024 event.
+- Get to promote your community during the TechXConf 2025 event.
   - Your community logo on the event website
   - Community partner announcement from TechXConf social media handles (Twitter, LinkedIn & Meta)
     
 ## Process for Onboarding
-- Contact us: The first step to becoming a community partner is to reach out to us and express your interest. You can do this by sending an email to organizers@techxconf.com
+- Contact us: The first step to becoming a community partner is to reach out to us and express your interest. You can do this by sending an email to support@techxconf.com
 - Begin partnership: After completing the onboarding process, we will officially welcome you as a community partner and work with you to maximize the benefits of our partnership.
 
 Thank You!
